@@ -21,7 +21,7 @@ All 12 games · Cancel anytime · **7-day free trial, no card required**
 
 ---
 
-## 🎮 12 Interactive Games
+## 🎮 32 Interactive Games
 
 One subscription gives you access to the entire TikPlays game library.
 
