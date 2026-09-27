@@ -16,8 +16,8 @@ A gift can trigger a boss attack, spawn enemies, change your game, play a sound,
 
 ### 👉 https://tiktok.shibalabs.live
 
-**$29.99/Month**
-All 12 games · Cancel anytime · **7-day free trial, no card required**
+**$6.99/Month**
+All 32 games · Cancel anytime · **7-day free trial, no card required**
 
 ---
 
@@ -217,7 +217,7 @@ We're constantly tuning the games and interactions based on what actually works 
 
 **7-day free trial · No card required**
 
-**$29.99/Month · Cancel anytime**
+**$6.99/Month · Cancel anytime**
 
 Turn your TikTok Live into something your viewers can actually play.
 
